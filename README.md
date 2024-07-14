@@ -1,3 +1,2 @@
 # UCCC2513
-Lets goooooooooo
-Ambatukammmm
+This is Desmond Ho Jia Shen's UCCC2513 Mini Project Section
